@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Black-sage
 - 👀 I’m interested in Typedesign, Book design, History and politics
-- 🌱 I’m currently learning C#
-- 💞️ I’m looking to collaborate on Game developments and type projects
+- 🌱 I’m currently learning book design
+- 💞️ I’m looking to collaborate on Type projects
 - 📫 How to reach me r.o.alegbeleye@gmail.com
 
 <!---
