@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Black-sage
-- 👀 I’m interested in Typedesign, Book design, History and politics
+- 👀 I’m interested in Typedesign, Book design, History, Politics and languages
 - 🌱 I’m currently learning book design
 - 💞️ I’m looking to collaborate on Type projects
 - 📫 How to reach me r.o.alegbeleye@gmail.com
